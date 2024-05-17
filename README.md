@@ -1,7 +1,8 @@
-# **<a href = "https://github.com/tianyakk/tianya_kkndme/buy_bitcoin">如何购买比特币</a>**
-# **<a href = "https://github.com/tianyakk/tianya_kkndme/buy_bitcoin">2024年最新币圈入门教程</a>**
-# 从零开始第一次购买加密货币
-# 币安交易所注册、买币全过程
+# **<a href = "https://github.com/tianyakk/buy_bitcoin">如何购买比特币</a>**
+# **<a href = "https://github.com/tianyakk/buy_bitcoin">2024年最新币圈入门教程</a>**
+# **<a href = "https://github.com/tianyakk/buy_bitcoin">从零开始第一次购买加密货币</a>**
+# **<a href = "https://github.com/tianyakk/buy_bitcoin">币安交易所注册、买币全过程</a>**
+
 
 ## **目录**
 - 1、全球领先的加密货币交易所排行
