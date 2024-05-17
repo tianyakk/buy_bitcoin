@@ -1,6 +1,7 @@
+## **<a href = "https://github.com/tianyakk/tianya_kkndme/buy_bitcoin">如何购买比特币</a>**
+# 如何购买比特币
 # 2024年最新币圈入门教程
 # 从零开始第一次购买加密货币
-# 比特币、USDT
 # 币安交易所注册、买币全过程
 
 ## **目录**
